@@ -10,4 +10,4 @@
 
 这些平台专注于日本一区二区三区在线观资源，汇聚丰富的中文字幕精品影视内容，更新快速，分类细致。每个视频页面提供详细的影片介绍，包括时长、演员和画质，支持高清流畅播放，自动根据网络速度调整画质，保证观看体验顺畅。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/toi20250710/toi20250710 ）</span>
